@@ -1,0 +1,1 @@
+# smadiyarova_lab10
